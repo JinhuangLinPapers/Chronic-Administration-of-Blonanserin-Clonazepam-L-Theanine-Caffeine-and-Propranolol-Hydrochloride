@@ -1,0 +1,2 @@
+# Chronic-Administration-of-Blonanserin-Clonazepam-L-Theanine-Caffeine-and-Propranolol-Hydrochloride
+Chronic Administration of Blonanserin, Clonazepam, L-Theanine, Caffeine, and Propranolol Hydrochloride: A Multi-Target Pharmacological Regimen Exhibits Robust Efficacy in a Murine Model of Schizophrenia
